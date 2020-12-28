@@ -25,11 +25,18 @@ La génoise : 3oeufs
 190g de farine
 
 
-Dans un  gand récipient  mélanger énergiquement 3 ouefs avec 150g de  sucre et 1 sachets  de sucre vanillé pendant 3 à 4 minute.
+Préchauffé le four à 180°.
+
+Dans un  gand récipient  mélanger énergiquement 3 ouefs avec 150g de  sucre et 1 sachet de sucre vanillé pendant 3 à 4 minute.
 
 Rajouter  200ml de lait puis mélanger.
 
 Ajouter 80ml d'huile et une pincée de sel puis mélanger.
 
 Tamiser la poudre de cacao et mélanger.
-Tamiser 190g de farine
+
+Tamiser 190g de farine avec 1 sachet de levure chimique de 8g puis mélanger jusqu'à obtenir un appareil à gâteau lisse et homogène.  
+
+Verser la préparation dans un moule à gâteau déjà beurré.
+
+Mettre la préparation au four pendant 20 minutes 
