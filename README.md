@@ -25,4 +25,8 @@ La génoise : 3oeufs
 190g de farine
 
 
-Melanger 3 oue
+Dans un  gand récipient  mélanger énergiquement 3 ouefs avec 150g de  sucre pendant 3 à 4 minute.
+
+Rajouter  200ml de lait puis mélanger.
+
+Ajouter 80ml d'huile et mélanger.
