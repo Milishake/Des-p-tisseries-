@@ -39,4 +39,9 @@ Tamiser 190g de farine avec 1 sachet de levure chimique de 8g puis mélanger jus
 
 Verser la préparation dans un moule à gâteau déjà beurré.
 
-Mettre la préparation au four pendant 20 minutes 
+Mettre la préparation au four pendant 20 minutes.
+
+Pendant se temps, préparer l'imbibage.
+
+
+
