@@ -3,7 +3,7 @@ pâtisserie
 
 AGLAYAN PASTA EST UN  GÂTEAU TURC  traduit par "GÂTEAU PLEURE" en français.
 
-Voici un lien pour
+Voici un lien pour voire la vidéo de la recette
 https://youtu.be/1IDcy9sKQR4
 
 POUR LE RÉALISER IL FAUT:
