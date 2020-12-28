@@ -52,5 +52,11 @@ Imbibage :
 Porté à ébullition 200ml de lait avec 15g de cacao en poudre non sucré et tamisée, remuer jusqu'à obtenir un mélange homogène.
 
 
- 
+Sortir le gâteau du four.
+
+À m'aide d'une fourchette.
+
+Faire des piques sur le gâteau.
+
+Vers la préparation pour l'imbibage en 4 fois et laissé le gâteau absorbé à chaque fois.
 
