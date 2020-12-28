@@ -70,4 +70,6 @@ Crème Chantilly :
 
 -50g de sucre glace
 
+Fouetter 550ml de crème liquide entière froide avec 50g de Sucre glace jusqu'à obtenir une Chantilly bien ferme.
 
+Étaler la Chantilly sur le gâteau puis la mettre au réfrigérateur.
