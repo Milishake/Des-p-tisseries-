@@ -20,7 +20,7 @@ La génoise : 3oeufs
 
 1 sachet de levure chimique
 
-30g de cacao
+30g de cacao non sucré 
 
 190g de farine
 
@@ -33,7 +33,7 @@ Rajouter  200ml de lait puis mélanger.
 
 Ajouter 80ml d'huile et une pincée de sel puis mélanger.
 
-Tamiser la poudre de cacao et mélanger.
+Tamiser la poudre de cacao non sucré et mélanger.
 
 Tamiser 190g de farine avec 1 sachet de levure chimique de 8g puis mélanger jusqu'à obtenir un appareil à gâteau lisse et homogène.  
 
@@ -47,7 +47,7 @@ Imbibage :
 
 200ml de lait 
 
-15gde cacao
+15gde cacao non sucré
 
  
 
