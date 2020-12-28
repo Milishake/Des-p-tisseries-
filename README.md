@@ -43,5 +43,11 @@ Mettre la préparation au four pendant 20 minutes.
 
 Pendant se temps, préparer l'imbibage.
 
+Imbibage : 
 
+200ml de lait 
+
+15gde cacao
+
+ 
 
