@@ -8,21 +8,21 @@ https://youtu.be/1IDcy9sKQR4
 
 POUR LE RÉALISER IL FAUT:
 
-La génoise : 3oeufs
+-La génoise : 3oeufs
 
-150g de sucre
+-150g de sucre
 
-80ml d’huile 
+-80ml d’huile 
 
-200ml de lait
+-200ml de lait
 
-1 sachet de sucre vanille
+-1 sachet de sucre vanille
 
-1 sachet de levure chimique
+-1 sachet de levure chimique
 
-30g de cacao non sucré 
+-30g de cacao non sucré 
 
-190g de farine
+-190g de farine
 
 
 Préchauffé le four à 180°.
@@ -45,9 +45,9 @@ Pendant se temps, préparer l'imbibage.
 
 Imbibage : 
 
-200ml de lait 
+-200ml de lait 
 
-15gde cacao non sucré
+-15gde cacao non sucré
 
 Porté à ébullition 200ml de lait avec 15g de cacao en poudre non sucré et tamisée, remuer jusqu'à obtenir un mélange homogène.
 
@@ -60,3 +60,6 @@ Faire des piques sur le gâteau.
 
 Vers la préparation pour l'imbibage en 4 fois et laissé le gâteau absorbé à chaque fois.
 
+Laisse le gâteau refroidire.
+
+Pendant se temps, faites la crème Chantilly.
