@@ -66,8 +66,8 @@ Pendant se temps, faites la crème Chantilly.
 
 Crème Chantilly : 
 
-550ml de crème liquide entière
+-550ml de crème liquide entière
 
-50g de sucre glace
+-50g de sucre glace
 
 
