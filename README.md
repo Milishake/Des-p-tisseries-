@@ -49,5 +49,8 @@ Imbibage :
 
 15gde cacao non sucré
 
+Porté à ébullition 200ml de lait avec 15g de cacao en poudre non sucré et tamisée, remuer jusqu'à obtenir un mélange homogène.
+
+
  
 
